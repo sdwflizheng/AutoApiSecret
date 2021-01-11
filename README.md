@@ -1,4 +1,4 @@
-大佬保佑，必定续订！
+大佬保佑，必得续订！
 # AutoApiSecret-加密版
 AutoApi系列：~~AutoApi~~、AutoApiSecret、~~AutoApiSR、AutoApiS~~、AutoApiP
 
